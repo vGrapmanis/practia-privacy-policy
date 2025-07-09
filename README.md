@@ -1,1 +1,0 @@
-# practia-privacy-policy
